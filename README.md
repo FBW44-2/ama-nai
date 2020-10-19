@@ -1,5 +1,5 @@
 # AMA (Ask Me Anything)
-![Funny Foto](https://archive2013-2020.ctm-festival.de/fileadmin/user_upload/im>
+![Funny Foto](https://archive2013-2020.ctm-festival.de/fileadmin/user_upload/images/Artists/N/nai-540x300.png)
 
 ```
 # Ask me anything!
